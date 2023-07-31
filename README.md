@@ -1,3 +1,3 @@
 Oi eu sou erick
-estyudo em uma escol publica
+estudo em uma escola publica
 gosto de aulas de informatica
